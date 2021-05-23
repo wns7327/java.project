@@ -44,10 +44,11 @@ JDE: Eclipse
 
 ## 시연영상
 
+https://www.youtube.com/watch?v=K2sQJ6nhmXk
 
 
 
-
+https://studio.youtube.com/video/Y77IibT0OOY/edit
 
 
 
