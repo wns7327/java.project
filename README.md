@@ -47,8 +47,7 @@ JDE: Eclipse
 https://www.youtube.com/watch?v=K2sQJ6nhmXk
 
 
-
-https://studio.youtube.com/video/Y77IibT0OOY/edit
+https://www.youtube.com/watch?v=Y77IibT0OOY
 
 
 
